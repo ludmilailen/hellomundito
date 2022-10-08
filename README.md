@@ -8,3 +8,4 @@ You Rock my world 👑🌎✨
 1003km 💕
 
 My favorite people are Bruno, Natalia, Mauro y Mati 🤍🖤💜🖤🤍💜
+Ya se cumplen 6 meses ! 
