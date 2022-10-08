@@ -9,3 +9,4 @@ You Rock my world 👑🌎✨
 
 My favorite people are Bruno, Natalia, Mauro y Mati 🤍🖤💜🖤🤍💜
 Ya se cumplen 6 meses ! 
+Bienvenido Wilson 🤍🖤💜🖤🤍💜
